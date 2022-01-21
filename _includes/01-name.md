@@ -1,2 +1,3 @@
 Tegan :)
 # LARGE
+![Image of avatar](https://www.google.com/imgres?imgurl=https%3A%2F%2Fcdn.vox-cdn.com%2Fthumbor%2FmXo5ObKpTbHYi9YslBy6YhfedT4%3D%2F95x601%3A1280x1460%2F1200x800%2Ffilters%3Afocal(538x858%3A742x1062)%2Fcdn.vox-cdn.com%2Fuploads%2Fchorus_image%2Fimage%2F66699060%2Fmgidarccontentnick.comc008fa9d_d.0.png&imgrefurl=https%3A%2F%2Fwww.theverge.com%2F2020%2F4%2F23%2F21233545%2Fnetflix-avatar-the-last-airbender-may-15th&tbnid=IB8MXo9qAsGg6M&vet=12ahUKEwi80NuX4MH1AhUXU80KHd89DUgQMygAegUIARDbAQ..i&docid=_DO4dJt2tr1ojM&w=1200&h=800&q=avatar%20the%20last%20airbender&ved=2ahUKEwi80NuX4MH1AhUXU80KHd89DUgQMygAegUIARDbAQ)
